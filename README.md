@@ -9,3 +9,5 @@ How to used it!
 
 test video:
 https://www.youtube.com/watch?v=EBNp9BB1lGI
+blog:
+http://harryamd5200.blogspot.tw/
