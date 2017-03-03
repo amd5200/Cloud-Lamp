@@ -12,4 +12,4 @@ https://www.youtube.com/watch?v=EBNp9BB1lGI
 blog:                                                                                                                           
 http://harryamd5200.blogspot.tw/
 
-Little cluod lamp 2.0: https://www.instagram.com/p/BLDCo9pj12H/﻿
+Little cluod lamp 2.0: https://www.instagram.com/p/BLDCo9pj12H/
